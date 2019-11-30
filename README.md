@@ -4,4 +4,4 @@ After my first [Assets1 Repo](https://github.com/nazimboudeffa/assets) that I ha
 
 ## About Heroes of Might and Magic
 
-I can't add HD artefacts of HoMM3 because it's illegal, you have to buy the game and follow a lot of steps to get the reason why
+I can't add HD artefacts of HoMM3 because it's illegal, you have to buy the game and follow a lot of steps to get the reason why, don't ask me why ? Because it's JUST MAGIC 🐲
